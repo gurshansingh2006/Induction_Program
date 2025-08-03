@@ -1,4 +1,4 @@
-# Day 1 - 31/07/25
+#  **Induction Day 1 - 31/07/25**
 ## ***8.30 to 9.30***
 ### ***GNDEC Gurudwara Sahib*** 
 - ***The First day*** started with the most beautiful thing from our holy place **Gurudwara Sahib**.It was the best start to give to life most important part we are entering.The **Gndec Gurudwara Sahib** is circular in shape if seen from front.Its located to the left when we enter from the main gate.From inside if we see upwards to cieling its made look like a ship depicting the quote **ਨਾਨਕ ਨਾਮ ਜਹਾਜ਼ ਹੈ, ਚੜ੍ਹੇ ਸੋ ਉਤਰੇ ਪਾਰ।।**
@@ -37,3 +37,10 @@
 [Link](https://gndec.ac.in/faculty/?deptt=21)
 
 ### **AT last this was the end of Induction Day_1. It was a remarkable and amazing start of our colleage**
+#
+# INDUCTION DAY 2 - 01/08/25
+## ***9.30 to 10.30***
+### **Profieciency Test - English**
+- During second day we has profieciency test of English.
+  [English_Profieciency test](![1754228059767](https://github.com/user-attachments/assets/5b5b8b74-aecb-4392-8ff3-db62c5b15c46)
+)
