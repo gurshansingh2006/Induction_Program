@@ -34,13 +34,35 @@
 ### We were given a detailed interactive lecture via presentation and were asked about the doubts we had about anything regarding our course,studies and more over to the basic misconseptions cleared by our respected teachers and professors.
 
 ### Then we were made aware of all our Professors of our Btech IT department.
-[Link](https://gndec.ac.in/faculty/?deptt=21)
+[Factuality List.Link](https://gndec.ac.in/faculty/?deptt=21)
 
 ### **AT last this was the end of Induction Day_1. It was a remarkable and amazing start of our colleage**
-#
+---
+---
 # INDUCTION DAY 2 - 01/08/25
 ## ***9.30 to 10.30***
 ### **Profieciency Test - English**
 - During second day we has profieciency test of English.
-  [English_Profieciency test](![1754228059767](https://github.com/user-attachments/assets/5b5b8b74-aecb-4392-8ff3-db62c5b15c46)
-)
+---
+![1754228059767](https://github.com/user-attachments/assets/320ddaae-f734-417f-9dc9-087ffbd061b3)
+![1754228059764](https://github.com/user-attachments/assets/e26e85e3-0302-489e-a295-d49f53aa5933)
+---
+## **10.30 to 11.30**
+### **Profieciency Test - Mathematics**
+- After english we had maths profieciency test.
+---
+![1754228059761](https://github.com/user-attachments/assets/b0ffe1af-6ee4-4a06-beac-ffa936cebac5)
+---
+## 11.30 to 1.00 
+- Then we had break for having lunch.
+## 1.00 to 2.00
+### Expert Lecture by DR. Arashdeep Singh on " Food : A pivotal role in Student Overall Wellness"
+- Then in the colleage auditorium we were adressed by DR.Arashdeep Singh adn he gave a amazing valuble lecture to us regarding the need of food and how does it matter so much specifically to students in colleages and he also broke some myths and our doubts.
+## 2.00 to 3.00
+### Satya Schlorship Program 2025 - Buddy4Study
+- Then the officals from **Buddy4Study** specifically under the ***NEHRU SIDHANT KENDAR TRUST*** inroduced us about the ***SATYA SCHOLARSHIP PROGRAM 2025***
+---
+  ![1754230424448](https://github.com/user-attachments/assets/641d8b13-3f45-4112-83b8-14c5fc7d30e0)
+---
+## 3.00 to 4.00
+
